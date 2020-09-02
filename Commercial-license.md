@@ -1,4 +1,4 @@
-# Commercial-license
+# Commercial license
 
 1. The Commercial License grants you, the purchaser, an ongoing, non-exclusive, worldwide license to make use of the digital work (Item) you have selected. Read the rest of this license for the details that apply to your use of the Item.
 
